@@ -1,1 +1,1 @@
-# yernaz06.github.com
+# yernaz06.github.io
